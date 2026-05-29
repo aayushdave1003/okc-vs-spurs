@@ -9,7 +9,7 @@ to face the New York Knicks.
 
 ## My Pick
 
-![SGA vs Wemby](./game7.png)
+![SGA vs Wemby](https://heavy.com/wp-content/uploads/2026/03/Shai-Gilgeous-Alexander-Victor-Wembanyama.jpg?quality=65&strip=all&w=780)
 
 OKC wins in a thriller. Shai drops 35.
 
