@@ -8,6 +8,9 @@ all the way to a winner-take-all Game 7. The winner heads to the NBA Finals
 to face the New York Knicks.
 
 ## My Pick
+
+![SGA vs Wemby](./game7.png)
+
 OKC wins in a thriller. Shai drops 35.
 
 ## Explore
